@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Izhlal
 - 👀 I’m interested in AI
-- 🌱 I’m currently learning Digital Marketing
+- 🌱 I’m currently study in Digital Marketing
 - 💞️ I’m looking to collaborate on Digital Things
 - 📫 How to reach me (Izhlalmaulana@gmail.com)
 
