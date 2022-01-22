@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning Digital Marketing
 - 💞️ I’m looking to collaborate on Digital Things
-- 📫 How to reach me 
+- 📫 How to reach me (Izhlalmaulana@gmail.com)
 
 <!---
 Izhlal/Izhlal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
