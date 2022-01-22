@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Izhlal
-- 👀 I’m interested in AI
+- 👀 I’m interested in AI, Digital Marketing, and another Tech things.
 - 🌱 I’m currently study in Digital Marketing
 - 💞️ I’m looking to collaborate on Digital Things
 - 📫 How to reach me (not ready yet)
