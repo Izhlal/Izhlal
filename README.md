@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI, Digital Marketing, and another Tech things.
 - 🌱 I’m currently study in Digital Marketing
 - 💞️ I’m looking to collaborate on Digital Things
-- 📫 How to reach me (not ready yet)
+- 📫 How to reach me portfolio.izhlalmau.works
 
 <!---
 Izhlal/Izhlal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
